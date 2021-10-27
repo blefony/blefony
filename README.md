@@ -6,4 +6,4 @@ My name is **Nazar Kornienko** (**Nazarii Korniienko**) also known as **Blefony*
 
 - 🌱 I started to learn web in the earlier times of my life, and the design is relatively recent.
 
-- 📫 You can reach me on Discord: **blefony#8580**
+- 📫 You can reach me on Discord: **Trevor_Fair(blefony)#8580**
